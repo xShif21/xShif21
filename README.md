@@ -1,0 +1,3 @@
+- Hi I am Shif and I am new at this world.
+- I am currently learning that I can I want to mainly focus everything on Cyber Security.
+- ;)
